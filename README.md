@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @raisauw
+- 👀 I’m interested in mie ayam
+- 🌱 I’m currently learning estetika mie ayam
+- 💞️ I’m looking to collaborate on orang tua group
+- 📫 How to reach me melalui warung mie ayam
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: ak suka bakso
